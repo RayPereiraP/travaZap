@@ -8266,8 +8266,7 @@ He lowers his lips to her neck. One bite is all it would take.
 
 
 
-103.
-EDWARD
+103.ella?EDWARD
 You're ready right now?
 
 
